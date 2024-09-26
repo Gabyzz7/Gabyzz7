@@ -1,9 +1,12 @@
 ## OIE MY LOVES 💝
 ![](https://media.tenor.com/Oy2Ua2XFvhoAAAAM/japa-fofinha-com-rosa.gif)
-SEJA BEM VINDOS (A)
-AO MEU PERFIL 🥰
+𝑺𝑬𝑱𝑨 𝑩𝑬𝑴 𝑽𝑰𝑵𝑫𝑶𝑺(𝑨) 𝑨𝑶 𝑴𝑬𝑼 𝑷𝑬𝑹𝑭𝑰𝑳 🥰 𝑴𝑬 𝑪𝑯𝑨𝑴𝑶 𝑮𝑨𝑩𝑹𝑰𝑬𝑳𝒀
 
-SOU A Gabyzz7
+
+Estou estudando na Alura
+Estou me desenvolvendo na linguagem JavaScript
+Utilizo esse espaço para minha organização
+e compartilhamento dos meu projetos desenvolvidos
 <!--
 **Gabyzz7/Gabyzz7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
