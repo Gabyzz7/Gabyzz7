@@ -1,5 +1,9 @@
-## Hi there 👋
+## OIE MY LOVES 💝
+![](https://media.tenor.com/Oy2Ua2XFvhoAAAAM/japa-fofinha-com-rosa.gif)
+SEJA BEM VINDOS (A)
+AO MEU PERFIL 🥰
 
+SOU A Gabyzz7
 <!--
 **Gabyzz7/Gabyzz7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
